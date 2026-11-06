@@ -2,7 +2,7 @@
 
 <p align="center">
   <b>Web Developer · AI Automation Builder · Community Tech Founder</b><br>
-  📍 Nairobi, Kenya &nbsp;|&nbsp; 🎓 Electrical Engineering · Nyeri National Polytechnic
+  📍 Nairobi, Kenya &nbsp;|&nbsp; 🎓 Storyteller · School of Life
 </p>
 
 <p align="center">
